@@ -1,1 +1,1 @@
-# ivanadamovich95.github.io-rsschool-CV
+#https://ivanadamovich95.github.io/rsschool-cv/cv. 
