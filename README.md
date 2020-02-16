@@ -1,4 +1,4 @@
-# ivanadamovich95.github.io-rsschool-CV
+#  ivanadamovich95
 My name is Ivan. My last name is Adamovich.
 
 My contacts: vanya.adamovich.2012@mail.ru, +375297447283.
